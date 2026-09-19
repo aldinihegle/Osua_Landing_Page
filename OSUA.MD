@@ -1,0 +1,6 @@
+- brand sepatu asal bandung didirikan sejak 2021
+- tipe sepatunya adalah sepatu formal casual seperti loafers dan boots 
+- target market nya adalah pria dan wanita 
+- punya instagram @osuafootwear dan ada di berbagai platform marketplace seperti shopee dan tiktok 
+- kini ada produk loafers yang ingin difokuskannya 
+- fokus di kulit asli dan suede 
